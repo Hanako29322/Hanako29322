@@ -1,6 +1,6 @@
 ![439702445_1502836683966854_1296147885569426564_n](https://github.com/user-attachments/assets/eeb6cc6e-53a3-48f4-9069-80ee06ddcabf)
 ## Personal Information
-- **Name:** Paura John Pau;
+- **Name:** Paura John Paura;
 - **Location:** Biñan , Laguna 🇵🇭
 - **Contact:** 
   - **Email:** coc11838@gamil.com
@@ -14,8 +14,10 @@
 
 
 ## Hobbies and Interests
-Play games
-driving
+-Play games,driving
+
+
+
 
 
 <!---
