@@ -7,7 +7,7 @@
   - **Phone:** ###########
  
   - **Skills:**
-  - A/N
+  - N/A
  
   - ## Achievements
   - High School Graduate
